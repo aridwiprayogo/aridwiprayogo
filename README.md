@@ -11,8 +11,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning kotlin
 - 💬 Ask me about kotlin android and backend
 - 📫 How to reach me: 
-  - telegram : [@aridwiprayogo](t.me/aridwiprayogo])
-  - twitter  : [aridwiprayogo](twitter.com/ariprayoga66)
+  - telegram : [@aridwiprayogo](https://t.me/aridwiprayogo)
+  - twitter  : [aridwiprayogo](https://www.twitter.com/ariprayoga66)
   - LinkedIn : [ari dwi prayogo](https://www.linkedin.com/in/ari-dwi-prayogo-714157143)
 - 😄 Pronouns: om, halo, ari, dwi, prayogo, bro, mas
 - ⚡ Fun fact: like to be invited to discussions 🤗🤗
