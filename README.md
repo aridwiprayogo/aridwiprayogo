@@ -5,6 +5,7 @@
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 Here are some ideas to get you started:
+- ⚡ Fun fact: like to be invited to discussions 🤗🤗
 -->
 
 - 🔭 I’m currently working as a freelancer
@@ -15,4 +16,3 @@ Here are some ideas to get you started:
   - twitter  : [aridwiprayogo](https://www.twitter.com/ariprayoga66)
   - LinkedIn : [ari dwi prayogo](https://www.linkedin.com/in/ari-dwi-prayogo-714157143)
 - 😄 Pronouns: om, halo, ari, dwi, prayogo, bro, mas
-- ⚡ Fun fact: like to be invited to discussions 🤗🤗
